@@ -1,6 +1,6 @@
 Obtain any favourite videos or any other big files from rapidgator net just using our open source generator tool and get your very personal premium account membership now for free 2025.
 
-✔️[GET ACCOUNTS NOW HERE](http://link4free.top/rapidgator.html)
+✔️[GET ACCOUNTS NOW HERE](http://makeitshort.top/rapidgator)
 
 .
 
